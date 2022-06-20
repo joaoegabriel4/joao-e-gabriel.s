@@ -1,1 +1,1 @@
-meu nome é Gabriel.s e do meu amigo joão guimaraes,nos somos alunosdo colegio pioli do 1 b
+meu nome é Gabriel.s e meu amigo se chama joão guimaraes,nos somos alunosdo colegio pioli do 1 B
